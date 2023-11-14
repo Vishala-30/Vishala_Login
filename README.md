@@ -1,9 +1,5 @@
-bcnbdc
-csc absabsa
-cbsa nb nb
-san bn
-fbdnsbdsnb
-vbdnsab
-bc bdc dnbs ca
-nvbndsv sn
-vbda vns
+hai
+hello
+how r u
+i am doing good
+thank you
